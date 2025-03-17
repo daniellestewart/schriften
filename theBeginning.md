@@ -1,4 +1,4 @@
-# 1. The beginning
+# 1. The Beginning
 
 When I was a child, my mother taught me about Jesus. She says from the time I was able to talk, I would worship Him. I'd sit in the car-seat with my hands raised, tears running down my face, singing to Him. There are pictures of me not quite 2 years old kneeling at my bed praying.
 
