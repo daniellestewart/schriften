@@ -29,7 +29,7 @@ After returning from the mental hospital, I decided I needed to find my own way 
 ## 1.3 Sobriety, University, and Therapy
 At 19, I realized I would die if I did not get sober. I found a basement that some friends of my parents let me hide in, and I didn't tell anyone where I was going. I didn't leave that place until I was ready once again to face the world. As I lay in bed shaking and trying not to think about the pain my body was in and how sweet that drug would be, I thought of Psalm 91. I could still quote it, so I did often.
 
-Eventually I got out of the basement, got a job, and started college. I found that I loved math and was quite good at it, so I finished a PhD. All throughout, I had flashbacks, nightmares, and all the rest. I went through many therapists in search of inner healing. Some helped, some hurt.
+Eventually I got out of the basement, got a job, and started college. I found that I loved math and was quite good at it, so I finished a PhD. All throughout, I had flashbacks, nightmares, and all the rest. I went through many therapists in search of inner healing. Some helped, some hurt. I got married to a man named Russell. He has stuck with me through an awful lot. I am so blessed to have him. 
 
 About six years ago, I found Carl Jung and began to study dreams, symbols, and archetypes from the perspective of analytical psychology. I began to explore inner healing from a new perspective. Given my love of stories, this worked very well for me. I poured myself into this study and made great progress in many ways, but still felt so very empty.
 
