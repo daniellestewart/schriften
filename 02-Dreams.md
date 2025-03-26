@@ -95,7 +95,7 @@ Each of them said much more, but after they were all done I told them about the 
 
 In subsequent conversations with Him, He reminds of the verses in Phillipians 3:10-14:
 
-> That I may know him, and the power of his resurrection, and the fellowship of his sufferings, being made conformable unto his death; if by any means I might attain to the resurrection from the dead.
+> That I may know Him, and the power of His resurrection, and the fellowship of His sufferings, being conformed unto His death; if by any means I might attain to the resurrection from the dead.
 >
 > Not that I have already attained or am already perfected, but I press on, that I may lay hold of that for which Christ Jesus has also laid hold of me. Brethren, I do not count myself to have apprehended, but one thing I do: forgetting those things which are behind and reaching forward to those things which are ahead, I press toward the goal for the prize of the upward call of God in Christ Jesus.
 
