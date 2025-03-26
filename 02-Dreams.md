@@ -3,9 +3,9 @@ Instead of wondering where to begin, I will just write down a few beautiful drea
 
 ## Dec 6, the week I gave my life to Him.
 
-The Most High lights a candle with me. He is in the form of a child.
+A dream: The Most High lights a candle with me. He is in the form of a child.
 
-I am in awe at the twinkling lights He made. The lights were really bright behind my closed sleeping eyelids. I am so honored that He wanted to do this with and for me. Afterwards, the shadow of a horse was on the ceiling above the bed. I gazed at it lovingly. I knew He left it for me.
+I was in awe at the twinkling lights He made. The lights were really bright behind my closed sleeping eyelids. I am so honored that He wanted to do this with and for me. Afterwards, the shadow of a horse was on the ceiling above the bed. I gazed at it lovingly. I knew He left it for me.
 
 When the Most High lights a candle for me, what does that mean? I felt like it was simply because He wanted to and found it beautiful.
 
