@@ -21,6 +21,7 @@ That night I had these two dreams, back to back.
 Behind me, an angel came up and he whispered into my ear new words that would help me keep this darkness at bay.
 
 > Odudinn aloindinn elovandinn
+> 
 > Odudinn aloindinn elovandinn
 
 I spoke them twice. Water boils. 
@@ -50,11 +51,13 @@ He also has given me angels to help me along these paths. The one behind me help
 
 That evening at the conference, I got so many words from God through people, but these two were back to back and matched the pair of dreams. The two women were people I had not previously met, they just walked up and began to prophecy over me.
 
-Woman 1: I will bring light to dark places, places where others do not want to go. I will go into them and effortlessly 'throw open the curtains' to let in His light. The people that I will be drawn to are those that others dismiss or look over. God has given me His heart for them. I will look into the corners and see those that others would not see. I will gather them and present them to the King - train a new kind of army. I will see that they are washed and ready for battle.
+Woman 1: 
+> I will bring light to dark places, places where others do not want to go. I will go into them and effortlessly 'throw open the curtains' to let in His light. The people that I will be drawn to are those that others dismiss or look over. God has given me His heart for them. I will look into the corners and see those that others would not see. I will gather them and present them to the King - train a new kind of army. I will see that they are washed and ready for battle.
+>
+> I will go into these dark places with grace. A quiet grace that will do more for these people than a loudness every could. This grace He has given me for this purpose. He has equipped me and will provide all I need before I need it. He will protect me in those dark places and the darkness cannot touch me. It will be as the light. 
 
-I will go into these dark places with grace. A quiet grace that will do more for these people than a loudness every could. This grace He has given me for this purpose. He has equipped me and will provide all I need before I need it. He will protect me in those dark places and the darkness cannot touch me. It will be as the light. 
-
-Woman 2: She saw a vivid blue-green color, a very bright aquamarine color. Something in the spiritual realm. It was like water, washing over me, moving around me. It prepares and cleanses me. "It glows so vividly!" (Yes, in my dream it was a startling glow of an unearthly color, definitely.)
+Woman 2: 
+> She saw a vivid blue-green color, a very bright aquamarine color. Something in the spiritual realm. It was like water, washing over me, moving around me. It prepares and cleanses me. "It glows so vividly!" (Yes, in my dream it was a startling glow of an unearthly color, definitely.)
 
 I was stunned. So many prophecies that week reinforced and reflected my recent dreams, but this one was like a beautiful extra gemstone that God didn't have to include in my week. But He did and that was really beautiful.
 
@@ -73,22 +76,27 @@ I awoke and immediately said, "Yes, my Lord and Master. That is enough."
 
 In the prophecy room on Thursday, before the conference began:
 
-> Woman 1: Immediately when I looked at your feet, I felt the Lord telling me to bless your feet. Wherever He will carry you, to anoint your feet for the journey. (She then laid hands on my feet and blessed them.)
+Woman 1: 
+> Immediately when I looked at your feet, I felt the Lord telling me to bless your feet. Wherever He will carry you, to anoint your feet for the journey. (She then laid hands on my feet and blessed them.)
 
-> Woman 2: When she was anointing your feet, I heard the Lord saying to you, "If I say 'Surely the darkness shall fall upon me,' even the night shall be as light about me; indeed the darkness shall not hide from You, but the night shines as the day. The darkness and the light are both alike to You." (Ps 139)
+Woman 2: 
+> When she was anointing your feet, I heard the Lord saying to you, "If I say 'Surely the darkness shall fall upon me,' even the night shall be as light about me; indeed the darkness shall not hide from You, but the night shines as the day. The darkness and the light are both alike to You." (Ps 139)
 
-> Woman 1: I am really asking the Lord about you, Danielle. There is something very... mistique about what the Lord has for you or what He is calling you to do. You know part of what it is and I'm asking the Lord to show me what it is! There is just something very... positive. It has to do with your journey. I'd really like to know cause it's going to be so good! Tell me, Lord, I want to share!
+Woman 1: 
+> I am really asking the Lord about you, Danielle. There is something very... mistique about what the Lord has for you or what He is calling you to do. You know part of what it is and I'm asking the Lord to show me what it is! There is just something very... positive. It has to do with your journey. I'd really like to know cause it's going to be so good! Tell me, Lord, I want to share!
 
-> Woman 2: I see you walking on a path. The Lord said there are sharp edges where you are going. You are walking through those sharp edges and nothing is touching or coming near you. There are rocks all around you, but you are fully sheltered on the path. There is total refuge and stronghold around you in that place.
+Woman 2: 
+> I see you walking on a path. The Lord said there are sharp edges where you are going. You are walking through those sharp edges and nothing is touching or coming near you. There are rocks all around you, but you are fully sheltered on the path. There is total refuge and stronghold around you in that place.
 
-> Woman 1: Yes. And you feel safe in this path. Even with all this around you, you are walking barefoot and you know you won't be hurt. It won't touch you at all. You will continue to walk on the path God is leading you on. I wish I knew what it was!
+Woman 1: 
+> Yes. And you feel safe in this path. Even with all this around you, you are walking barefoot and you know you won't be hurt. It won't touch you at all. You will continue to walk on the path God is leading you on. I wish I knew what it was!
 
 Each of them said much more, but after they were all done I told them about the dream I had five days prior. They laughed and said, "No wonder He wasn't telling us!" 
 
 In subsequent conversations with Him, He reminds of the verses in Phillipians 3:10-14:
 
 > That I may know him, and the power of his resurrection, and the fellowship of his sufferings, being made conformable unto his death; if by any means I might attain to the resurrection from the dead.
-
+>
 > Not that I have already attained or am already perfected, but I press on, that I may lay hold of that for which Christ Jesus has also laid hold of me. Brethren, I do not count myself to have apprehended, but one thing I do: forgetting those things which are behind and reaching forward to those things which are ahead, I press toward the goal for the prize of the upward call of God in Christ Jesus.
 
 He is my calling. And that is more than enough. Way more.
