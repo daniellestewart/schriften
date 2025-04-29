@@ -121,12 +121,6 @@ Then I realized something. The trust that I need to have for Him is beyond any l
 
 The weightiness of this trust has followed me ever since that night. And I continue to let Him know that next time, he could consider removing his hand from my ears and eyes.
 
-This is where so many of my questions lie:
-- Has this ever happened to you? That was an intense difference, and nothing like an open-eye vision, a screen-of-the-imagination vision, or a dream. This was not a dream, it was very very real.
-- I never want to practice this by myself, but I want to practice with Him. At this time, I assume it is up to Him to initiate things like that. Is that the correct assumption? I am willing and I let Him know, but beyond that, I let Him decide?
-- If you have had an out of body experience like this with Him, how did you manage that overwhelming feeling of complete trust? Or is that just me?
-- For what reason does He do this? I am perfectly content with a reason being: He just wanted to dance with me like that. But perhaps there is something more, something I should learn or do about this. I am reminded of what Putty Putman said during the conference, that the prophetic gift is given to us, not for us.
-- Will people believe me? I know that is a pretty minor thing. On one hand, it doesn't matter if they do. I know it was real and it was beautiful beyond description. On the other hand, I want to share it with someone and don't know who to share it with. Other than you two. :) Thank you for reading.
 
 ## March 21
 
