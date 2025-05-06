@@ -1,3 +1,5 @@
+# 5. Samaritan
+
 The same week of reading about worshipping the Father in spirit and in truth, I was contemplating the passage in which that verse occurs.
 
 Excerpts from John 4:1-26
@@ -38,7 +40,7 @@ Evenutally, I was ready for sleep. That night before I went to sleep, I asked Fa
 
 That was good enough for me. I fell asleep.
 
-## Dream, March 15
+## 5.1 Dream, March 15
 
 I was in a dark place. There was no light there. Something bolted me to the ground - not a physical thing, but energetic binding. I could not leave, and I knew I was there by my own choices. I could not leave until the god was served. I had crawled into his territory in the deep, and I knew the penalty. I waited for my time. He chose me and soon will want me. I laid in his bed.
 
@@ -52,7 +54,7 @@ I looked up for anyone who could help me. In the darkness close by, I saw John, 
 
 I have to call to John! He knows where the unfindable ones are! I could not hold back any longer, "John, please see me! Please find me..." I screamed in pain, but John could not hear or see me. *No man can hear or see into this place*, I thought to myself. The god continued to suck and crunch my fingers. So much pain. But this is the price and it must be paid.
 
-## The Interpretation
+## 5.2 The Interpretation
 
 When I awoke, it took me a while to gather my bearings. Immediately, I knew that a spiritual being had been revealed to me. It was so real and unlike many other dreams I have. In the dream, I did not know to call to Jesus. It was as if I did not belong to him, I belonged to this other god.
 
@@ -86,7 +88,7 @@ I also considered that when I feel Holy Spirit wanting to move through me, it is
 
 > Yes! That is always what they seek. It breaks my heart to see my beautiful creation fall to this.
 
-## Praying That Morning
+## 5.3 Praying That Morning
 
 I began to pray in a really unique language. I hadn't tasted that one before. Then this began to play out in my mind's eye, very clearly and not from my own making.
 

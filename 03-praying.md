@@ -1,4 +1,4 @@
-# Learning to Pray
+# 3. Learning to Pray
 
 When I told Yahweh that I would give Him all of me, I really meant
 it. I had already seen what my life would be like without Him, and it
@@ -28,7 +28,7 @@ to say, "Would you like me to pause so you can write this down?"
 Almost every night He gives me dreams. Every day I spend time talking
 to Him. 
 
-## Praying
+## 3.1 Praying
 
 When I was a child and adults prayed, it was usually *really*
 dull. They would say a bunch of stuff in really emotionally serious
@@ -145,7 +145,7 @@ My mornings are intense sometimes and I love them. The time stretches
 longer and longer the more I look and see. I will have to start
 getting up even earlier now.
 
-## A Morning Lesson of Particular Importance
+## 3.2 A Morning Lesson of Particular Importance
 
 On February 26 after my prayer time, I wrote this down so I would not
 forget.
@@ -171,7 +171,7 @@ to mutter in our language again. He shushed me. I could then see light
 sparking and flying from us as I spoke. Then when I said nothing, just
 dark complete silence. Interesting.
 
-## Learning His Heart
+## 3.3 Learning His Heart
 
 Occasionally when I am sitting on Father's lap, He will ask me ever so
 gently, "Is there anything you want to ask of Me?" My heart beats

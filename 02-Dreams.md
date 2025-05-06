@@ -1,4 +1,4 @@
-# Dreams
+# 2. Dreams
 Instead of wondering where to begin, I will just write down a few beautiful dreams He has given me lately. There are so many, this is just a selection.
 
 ## Dec 6, the week I gave my life to Him.
@@ -47,7 +47,7 @@ He was absolutely right. I recognize Him without *any* issue whatsoever. But the
 
 He also has given me angels to help me along these paths. The one behind me helping me with words in the darkness felt very much like my guardian angel, one who has been with me from the beginning of this life. The one with aquamarine eyes seemed to be in a womanly form for the dream's sake. I did not know what form she actually takes, but glimpses of her in my spiritual eyes showed a flowing. It feels (and felt then) to me like she is new in my life.
 
-### Feb 21, Friends of God conference
+## Feb 21, Friends of God conference
 
 That evening at the conference, I got so many words from God through people, but these two were back to back and matched the pair of dreams. The two women were people I had not previously met, they just walked up and began to prophecy over me.
 
@@ -72,7 +72,7 @@ YHWH Himself stood before me. He was three in one. I could see His face as my Fa
 
 I awoke and immediately said, "Yes, my Lord and Master. That is enough."
 
-### Feb 20, Friends of God conference
+## Feb 20, Friends of God conference
 
 In the prophecy room on Thursday, before the conference began:
 

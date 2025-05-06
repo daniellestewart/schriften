@@ -1,5 +1,5 @@
 
-# Spirit and Truth
+# 4. Spirit and Truth
 John 4:23-24
 
 > But the hour is coming and now is when the true worshippers
