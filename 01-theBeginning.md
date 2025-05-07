@@ -6,7 +6,7 @@ When I was four years old, my parents were at a church event. I remember this: I
 
 Throughout my childhood, it was so very simple. I loved Jesus. He was my best friend. I didn't have many friends other than Him. He climbed trees with me, rode horse and bike, and visited for as long as I wanted to visit. He loved me and I knew it. My best earth friend at that time was a horse named Buffy. We had so many adventures together and Jesus was always with us. I loved horses, more than anything else in this world. 
 
-One day, I was taking a bath and playing with my toys. The presense of Jesus came to me and He gave me a special language. At first it was just one word, and I knew I should say it often. Soon it became two words. With time, it became many languages that flowed easily and beautifully.
+One day, I was taking a bath and playing with my toys. The presence of Jesus came to me and He gave me a special language. At first it was just one word, and I knew I should say it often. Soon it became two words. With time, it became many languages that flowed easily and beautifully.
 
 I memorized as much of the bible as I could. I loved learning verses and standing in front of my siblings and mom and repeating them. 
 
