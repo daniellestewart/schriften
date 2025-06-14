@@ -1,4 +1,4 @@
-# 7 The River and the Waterspout
+# The River and the Waterspout
 
 Holy Spirit asked me to follow Him and I followed. (This vision was another that played out on the screen of my imagination.) He took me to a tall rock that overlooked a massive desert. The desert was dry, but had small signs of life. A cactus, some sagebrush, a little critter running under a rock. The landscape reminded me of the desert rock in western states - stacked boulders and seemingly precarious red rock formations. 
 
@@ -12,7 +12,7 @@ Each time it pulled water from the stream, the stream grew stronger, faster, and
 
 When He said that, a great understanding came into my mind and heart. 
 
-## 7.1 The Desert
+## The Desert
 The world around me is barren of life without Christ, but even in the driest places, He is there.
 
 Isaiah 43:19
@@ -23,7 +23,7 @@ Isaiah 58:11
 
 Where I go in my life is like this desert. If I look carefully, I will see Him in people, places, and circumstances, even when it is so small and seemingly insignificant. The sagebrush and cactus represented people or situations that on outward appearances do not seem to carry much life. Perhaps people who are not followers of Christ, yet have messages from Him for me. Perhaps situations that seem very dark, yet will bring me to new revelations of His power. It was very clear to me that these forms of His life are not to be disregarded because they aren't traditionally acceptable ways of hearing His voice.
 
-## 7.2 The Stream
+## The Stream
 He is the living water and He is the stream in the dry places. He is water, He is life.
 
 John 4:13-14
@@ -36,7 +36,7 @@ Wherever I go, as long as I follow Him, I follow that stream. At times, it may s
 
 The stream also grew as it was being pulled up and released out. As I drank the water and released it into the world around me, the stream became a river. It seemed as if it would not have grown had the waterspout not been there to draw more and more water. This seems to represent  my capacity to manage what Holy Spirit provides. If I keep it to myself and only stay on the stream, I don't think His work in me would grow as large. It was matching my movement to His and releasing His life to the world around me that was the catalyst for growth of His work in me and in the world around me.
 
-## 7.3 The Waterspout 
+## The Waterspout 
 At first, the waterspout was so small that it seemed silly to think that such a thing could water the desert. But that waterspout was faithfully drinking in water and then releasing it out, and as it was faithful with the little bit it could handle, it grew to handle wayyy more.
 
 This reminds me of the parable of the talents in Matthew 25:14-30, especially verse 21:
