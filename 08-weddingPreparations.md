@@ -63,7 +63,7 @@ His word should never be used to gain a position, weild authority over, or to ma
 
 However, I truly loved her. I needed to block that action, but I also wanted to continue the minstry. I can imagine in real life, this would be incredibly difficult to do. Having not been in a ministry position I can only speculate that balance would be so very important. As would listening to the voice of God... for I am sure there are times when it becomes necessary to push a person like that far away. This is another element of the dream that I will revisit in later years to gain new perspectives. 
 
-## The main takeaway
+## The Main Takeaway
 
 There are so many takeaways to this dream. It is a big dream and I feel it is really important right now. There are nonetheless two main points that I felt were highlighted to me.
 
