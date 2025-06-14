@@ -69,4 +69,4 @@ There are so many takeaways to this dream. It is a big dream and I feel it is re
 
  - (1) Pray for protection and wisdom for the bride. We need these now and we need to walk in them consistently. What we do now will change everything in the upcoming wedding preparations.
 
- - (2) Love. His love is what prepares the bride and His kindness brings people to repentance (Rom 2:4). There is no other way.
+ - (2) Love and kindness. His love is what prepares the bride and His kindness brings people to repentance (Rom 2:4). There is no other way.
