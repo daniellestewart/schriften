@@ -7,9 +7,9 @@ One of my favorite ways to play in my imagination with Him is reading His words.
 Matthew 4:13-17
 
 > Then Jesus came from Galilee to John at the Jordan to be baptized by him. But John tried to stop Him, saying, "I need to be baptized by You, and yet You come to me?" Jesus answered him, "Allow it for now, because this is the way for us to fulfill all righteousness." Then he allowed Him to be baptized.
-
+>
 > After Jesus was baptized, He went up immediately from the water. The heavens suddenly opened for Him and He saw the Spirit of God descending like a dove and coming down on Him. And there came a voice from heaven saying:
-
+>
 > This is My beloved Son, in whom I am well pleased.
 
 ## Childhood vision
