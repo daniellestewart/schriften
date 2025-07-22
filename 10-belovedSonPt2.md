@@ -4,7 +4,7 @@
 
 The first night that I meditated on this verse, I knelt before Him and I asked Him:
 
-I don't want to sit and fight these images in my mind. They are lies and you have defeated lies already. Will you give me another vision to replace that old one? Then whenever I think on this verse, I will not see the old, but just the new.
+*I don't want to sit and fight these images in my mind. They are lies and you have defeated lies already. Will you give me another vision to replace that old one? Then whenever I think on this verse, I will not see the old, but just the new.*
 
 Then I opened the eyes of my heart and began to speak the verses. As I did, my imagination was totally and completely *there*. I saw John baptizing people in a river. I could see myself walking up to John and hear his words, saying that he was not worthy. I realized I was seeing this from Jesus' perspective. I continued and could see myself going underwater. When I looked up and began to rise out of the water, the sun glittered on the surface of the waves above me. Then Holy Spirit descended. He was beautiful alighting on Christ. The Father's voice spoke from heaven and shook Jesus to his very core.
 
