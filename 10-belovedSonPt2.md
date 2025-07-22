@@ -1,4 +1,4 @@
-# Beloved Son, Part 2
+# This is My Beloved Son, Part 2
 
 ## Vision
 
