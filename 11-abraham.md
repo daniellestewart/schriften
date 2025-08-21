@@ -11,7 +11,7 @@
 > Isaac said, "The fire and the wood are here, but where is the lamb for the burnt offering?"
 > Abraham answered, "God Himself will provide the lamb for the burnt offering, my son." Then the two of them walked on together.
 >
-> When they arrived at the place that God had told him about, Abraham built the altar there and arranged the wood. he bound his son Isaac and placed him on the altar on top of the wood. Then Abraham reached out and took the knife to slaughter his son.
+> When they arrived at the place that God had told him about, Abraham built the altar there and arranged the wood. He bound his son Isaac and placed him on the altar on top of the wood. Then Abraham reached out and took the knife to slaughter his son.
 >
 > But the Angel of the Lord called to him from heaven and said, "Abraham, Abraham!"
 > He replied, "Here I am."
@@ -27,7 +27,7 @@ He stood outside of a woman and tried tapping her shoulder, tried calling to her
 
 He went to meet a man who was once His friend. He went to their secret place, but the man saw Him there and sheepishly closed the door on Him. He returned to his sin and rejected Jesus.
 
-He went to children that He loves to visit and play with. But their parents had given them devices that stole their ability to see Jesus or hear His voice. He sat on the floor and held His face in His hands and wept as the child stared at a screen.
+He went to children that He loves to visit and play with. But parents have given them devices that steal their ability to see Jesus or hear His voice. He sat on the floor and held His face in His hands and wept as the child stared at a screen.
 
 Multitudes of people - one after the other - closed the door or didn't even hear His call.
 
@@ -55,13 +55,13 @@ Later as I read the story again, I saw in the footnotes of my bible that the pla
 
 This entire experience was so personal to me. It was the most intimate thing that my dear God has ever shared with me. It brought me closer to Him in a way I cannot describe or explain. When I asked Him what He wanted me to write about for the next installment and He brought this to mind, I balked. I put it off. It was just so intimately ours... how could I ever come up with words that would do it justice? That could describe His heart...?
 
-In the morning, I take time to sit with a verse and my notebook and ask my Lord questions about the verse. I write down our conversations. This morning, we were discussing Enoch. Jesus said to me,
+In the morning, I take time to sit with a verse and my notebook and ask my Lord questions about the verse. I write down our conversations. This morning, we were discussing Enoch. Father said to me,
 
 > Enoch sought Me more than anyone else has done before him. He learned all he could from his forefathers - including Adam - but could only go to Me to satisfy. He spent every day of his life seeking My face, My heart, My companionship.
 >
 > Don't forget about the last one: companionship. I desire it too.
 
-I replied, "My beautiful Lord, why is there so much sadness and pain in Your voice when y ou say that?"
+I replied, "My beautiful Lord, why is there so much sadness and pain in Your voice when you say that?"
 
 > My children forget that I, too, desire love and truth and partnership. I love quality time and need it just as you do. (Remember, quality is not the same as quantity.)
 >
