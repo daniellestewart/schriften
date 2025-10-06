@@ -5,11 +5,11 @@ In one week, I had three dreams, two of which took place in a very typical unnam
 ## 1. The Full Bathrooms
 I was going to church. When I got there, I had to pee so I went into the women's bathrooms. They were an extension of the altar. The bathrooms were *huge* and many many people were in them. Rows of toilets lined the walls and there were no dividers or walls between them. Women were sleeping on the toilets, as if they'd been sitting for so long, they fell asleep there. I wondered if they listened to the sermons from in here. I really didn't want to stay.
 
-I tried to leave and opened a door that wasn't latched close. It was the men's bathroom and was also full. Some men milled about aimlessly, others were also sleeping on toilets.
+I tried to leave and opened a door that wasn't latched closed. It was the men's bathroom and was also full. Some men milled about aimlessly, others were also sleeping on toilets.
 
 ### Interpretation
 
-I asked Holy Spirit, "why dreams of churches and bathrooms?" He responded,
+I asked Holy Spirit what this meant. He responded,
 
 > Look around you. So many of my people stay in a place of purging their sin. To Me, sin is like refuse and manure. Many people consume sin, digest it, then expel it at what they believe is My throne. It really is their throne. They remain there and become comfortable continuing to consume, digest, and expel, thinking that they are holy and righteous by doing so. They don't even know what holiness means. They sleep on their own thrones and I turn My face from them.
 >
