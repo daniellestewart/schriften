@@ -23,7 +23,7 @@ Corey Russell was staying in a shack in the forest. It was bear season and grizz
 
 I flipped the lid as he commanded and the lid played a cheesy sounding jingle: "Flush the toilet before you go! Get up! You are clean and you can leave!"
 
-# Interpretation
+### Interpretation
 
 I asked, "Why the bidet, Corey Russell, grizzlies, and the flushing jingle?" He responded,
 
@@ -44,7 +44,7 @@ The 'worshippers' on stage wore really fancy attire, like what you'd see at a di
 
 As I watched the people, I could see so much anger and bitterness between them. As they shoved ice cream into their faces, their eyes looked rageful and they'd throw mean glares at others.
 
-# Discussion
+### Interpretation
 
 This one was particularly disturbing to me. As I was in the dream, I was so torn between wanting the sugary treats, wanting my name to be drawn in the prophecy lottery, and wanting to get out as quickly as I could.
 
