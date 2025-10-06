@@ -31,7 +31,7 @@ I asked, "Why the bidet, Corey Russell, grizzlies, and the flushing jingle?" He 
 >
 >Corey Russell is preaching this message and dragging My people out of the bathroom. As you listen to him, pay attention to the scriptures that say this very thing. 
 >
-The enemy surrounds as grizzly bears. From afar, they look cute and cuddly. They roll, play, and look pleasing. But once you are near and in its grip, it rips you into pieces. Take care not to see sin as anything other than disgusting and dangerous.
+> The enemy surrounds as grizzly bears. From afar, they look cute and cuddly. They roll, play, and look pleasing. But once you are near and in its grip, it rips you into pieces. Take care not to see sin as anything other than disgusting and dangerous.
 
 
 ## 3. Umbrellas and Sugar
@@ -58,7 +58,7 @@ There was an understanding imparted to me upon awakening, and I will try to arti
 
 - Worship: The stage. The lights. The smoke. The loudspeakers. The flashy outfits and perfect makeup. We were not worshipping, we were performing. The 'worship leader' was only a star. We vote on the worship song of the year and think that the award we receive is something other than a golden calf. We line the entrance to the Holy of Holies with merchandise and posters. We forgot that worship is ministry to the heart of Yahweh. It is not for us to feel good. It is not an incantation that results in summoning His presence. He is not a God to be summoned by a pretty voice, a minor key, and oh-those-lyrics. He does not respond to spells and tricks. His eyes go to and fro across the earth, looking for those who meekly and humbly seek Him.
 
-Bitterness: "By this all people will know you are My disciples, if you have love for one another." John 13:35. There is nothing more that needs to be said.
+- Bitterness: "By this all people will know you are My disciples, if you have love for one another." John 13:35. There is nothing more that needs to be said.
 
 I repent for His people. I repent for my own sin, pride, and selfishness. I repent for the times when I tried to worship Him and gave up because I felt nothing. I forgot that it isn't about me. I repent for the times that I have lost my peace and sat there on the toilet of my own condemnation, wallowing in sin. I insulted His blood that day. 
 
