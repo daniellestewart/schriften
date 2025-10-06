@@ -1,6 +1,6 @@
 # The Dreams
 
-In one week, I had three dreams that all took place in a very typical unnamed American church building. Here are the dreams.
+In one week, I had three dreams, two of which took place in a very typical unnamed American church building. Here are the dreams.
 
 ## 1. The Full Bathrooms
 I was going to church. When I got there, I had to pee so I went into the women's bathrooms. They were an extension of the altar. The bathrooms were *huge* and many many people were in them. Rows of toilets lined the walls and there were no dividers or walls between them. Women were sleeping on the toilets, as if they'd been sitting for so long, they fell asleep there. I wondered if they listened to the sermons from in here. I really didn't want to stay.
