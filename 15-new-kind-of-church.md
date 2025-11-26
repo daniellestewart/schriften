@@ -1,16 +1,16 @@
 # A New Kind of Church: A Dream
 
-The building was large, but not massive. It was built on the massive rocks at the edge of the endlessly stormy ocean. I walked into the front door. It was quiet in the building and had the warm glow of firelight. There were no artificial lights at all.
+The building was not large. It was built on the rocks at the edge of the endlessly stormy ocean. I walked into the front door. It was quiet in the building and had the warm glow of firelight. There were no artificial lights at all.
 
 ## The Entry
-The front room was an entry and had plenty of places for hats, coats, and boots. There were small tables in front of the entry windows and on the tables were a few pots with green herbs growing. A rack for firewood sat next to the door. It was well stocked. The walls were rough sawn lumber, but it was fitting and comfortable. Some pretty knickknacks sat on windowsills and an umbrella stand stood in the corner.
+The front entry had plenty of places for hats, coats, and boots. There were small tables in front of the windows, and on the tables were a few pots with green herbs growing. A rack for firewood sat next to the door. It was well stocked. The walls were rough sawn lumber, but it was fitting and comfortable. Some pretty knickknacks sat on windowsills and an umbrella stand stood in the corner.
 
-Immediately I felt that the building was welcoming and peaceful. I knew that this entry was a place where people greeted each other fondly and stripped off their protective clothing, knowing they were now safe.
+The building was welcoming and peaceful. I knew that this entry was a place where people greeted each other fondly and stripped off their protective clothing, knowing they were now safe.
 
 ## The Inner Room
 The inner room immediately off the entry was the kitchen area. It reminded me of a cantina. Some small tables, a bar area with herbs hanging in bundles. Some glass cups, big pots for making food, the smell of baking bread. It was a very comfortable place, dimly lit by firelight and lanterns.
 
-There were wooden pillars throughout and all the walls were rough sawn boards. Despite their roughness, it created a really cozy feel and a solid construction. Little nooks were at the edges of the room where people could rest. The bar was right at the kitchen so that one could visit with the cook while they worked.
+There were wooden pillars throughout and all the walls were rough sawn boards. Despite their roughness, it created a really cozy feel of solid construction. Little nooks were at the edges of the room where people could rest. The bar was right at the kitchen so that one could visit with the cook while they worked.
 
 ## The Sanctuary
 
@@ -47,7 +47,7 @@ The kitchen was a place of deeper healing and preparation of the bread and meat 
 >
 > "I am the bread of life," Jesus told them. "No one who comes to Me will ever be hungry and no one who believes in Me will ever be thirsty again."
 
-> John 6:51
+> John 6:51-58
 >
 > I am the living bread that comes down from heaven. If anyone eats of this bread he will live forever. The bread that I will give for the life of the world is My flesh... Truly I tell you, unless you eat the flesh of the Son of Man and drink His blood, you do not have life in yourselves. The one who eats My flesh and drinks My blood has eternal life and I will raise Him up on the last day, because My flesh is true food and My blood is true drink. The one who eats My flesh and drinks My blood remains in Me, and I in Him. Just as the living Father sent Me and I live because of the Father, so the one who feeds on Me will live because of Me. This is the bread that came down from heaven; it is not like the manna your ancestors ate - and they died. The one who eats this bread will live forever.
 

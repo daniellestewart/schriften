@@ -2,7 +2,7 @@
 
 The other day I was in a funk. I felt whiney inside of myself, ungrateful, and these feelings got progressively heavier throughout the day. Finally, I went on a walk and asked Holy Spirit what was up in me. He reminded me of a dream I'd had the night before. In that dream, a temptation presented itself to me to resurrect the me that is dead and gone. In the dream, I took the bait and "became" the old me.
 
-In my waking life, there are moments when the old me threatens to resurrect, but they are further and further between. The type of temptation in the dream simply wouldn't have power over me in my conscious life. So I asked Holy Spirit what I can do about it. I was dreaming... how do I make sure my unconscious self doesn't take bait like that? He responded: "You need to train your unconscious."
+In my waking life, there are moments when the old me threatens to resurrect, but they are fewer and further between. The type of temptation in the dream simply wouldn't have power over me in my conscious life. So I asked Holy Spirit what I can do about it. "How do I make sure my unconscious self doesn't take bait like that?" He responded: "You need to train your unconscious."
 
 Through the course of the walk, He helped me come up with a few things to do that evening before bed. Of course, by the end of the walk, I was back in His peace again and the rest of the day was quite beautiful.
 
@@ -10,7 +10,7 @@ That night before bed, I spoke over my unconscious self, both body and mind, and
 
 ## The Game Master and the Table
 
-A Game Master prepared a role playing game for me. I sat across from him at the table. My character was rolled up and miniature enemies on the grid that lay flat on the table. The Game Master set the stage and explained how I was in the orc camp sitting at their table. The orcs were eating dinner and offered me something to eat. "What would you like to do?" he asked me. I thought about it and said, "I will try some, sure."
+The Game Master prepared a role playing game for me. I sat across from him at the table. My character was rolled up and miniature enemies on the grid that lay flat on the table. The Game Master set the stage and explained how I was in the orc camp sitting at their table. The orcs were eating dinner and offered me something to eat. "What would you like to do?" he asked me. I thought about it and said, "I will try some, sure."
 
 The Game Master handed me some of the orc's food and I had a few bites. Then he said, "Now I need you to vomit." He handed me a small pail. I told him I would try, but I wasn't sure I could vomit on command. As soon as I took the pail, I began to puke up everything I'd eaten. Afterwards I asked the GM, "Did you put something in that food that made me puke?"
 
