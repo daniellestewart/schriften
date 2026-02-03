@@ -10,7 +10,7 @@ I've always had a very specific morning routine. Throughout the years, it has mo
 
 *Oh, 20 minutes is easy!* I imagined laying in His presence every day and basking in His beauty. I started switching my routine. It has never been difficult for me to focus my attention, so 20 minutes went by. Then 30, 40. *Where is His presence? What did I do wrong? Ah, perhaps it takes a week or so to get into the groove with Him. Maybe He needs to see that I am serious and committed.* A couple of days went by and I couldn't help but feel that I was doing something wrong. Maybe music? Maybe the right verses? Then Holy Spirit spoke to me.
 
-> You cannot summon My presence.
+> You cannot summon Me.
 
 Oh. Ouch. That was exactly what I was attempting... What spell ingredients was I missing? Was my intention pure? What must I do? All of these things were my attempts to summon Him so that I could feel His presence. After my sincere apology, He began to teach me how to build a relationship with Him in these morning hours. He encouraged me to be silent with Him - no music, no checklists, no expectations or plans. He began to guide my prayers, show me beautiful things, and answer my questions. He discusses scripture, dreams, and situations with me, and He meets me every day.
 
