@@ -30,7 +30,7 @@ I am smiling writing this. I am on the last day of a three day water & salt only
 
 Then there is the spiritual side on top of this. Waves of thoughts (that are not from me or God), anxiety trying to make its way into my home, attacks of doubt and insecurity. And to top it all off, I heard my God's voice SO much better when I wasn't fasting.  It doesn't feel like veils have been removed between me and the spiritual world. It seems more like layers of cotton batting have wrapped around my head and I am constantly cutting it off. In moments of clarity after battles, He reminds me: fix your eyes on Me. He tells me: this is necessary right now, keep pushing.
 
-The longer this fast goes, the more He is revealing to me that was in my heart, I just didn't know it. So between the blows from the enemy, cutting off batting, and telling my body to shush, I also have revelations that require repentence and a change of heart. This is really difficult. But I push on and I fight to keep my eyes on Him.  
+The longer this fast goes, the more He is revealing to me what was in my heart, I just didn't know it. So between the blows from the enemy, cutting off batting, and telling my body to shush, I also have revelations that require repentence and a change of heart. This is really difficult. But I push on and I fight to keep my eyes on Him.  
 
 ## Conclusion
 
