@@ -2,13 +2,10 @@
 
 One recent evening, I knelt before our beautiful Creator and spoke with Him about the following verses.
 
-Matt 4:1-2
-> Then Jesus was led up by the Spirit into the wilderness to be tempted by the devil. After He had fasted forty days and forty nights, he was hungry.
-
-John 5:19
+John 5:19-20
 > Jesus replied, "Truly I tell you, the Son is not able to do anything on His own, but only what He sees the Father doing. For whatever the Father does, the Son likewise does these things. For the Father loves the Son and shows Him everything He is doing, and He will show Him greater works than these so that you will be amazed..."
 
-How can a person reach the point of only doing what they see the Father doing? It would require that they gave up their own will entirely. How do I do that? Father told me that was what Jesus did during those forty days and nights of fasting. That it wasn't a single effort event, but that He had built up to that fast over many years of small increments and steps. However, Jesus gave up His own will and authority those days in the wilderness and traded it for Father's will.
+How can a person reach the point of only doing what they see the Father doing? It would require that they gave up their own will entirely. How do I do that? Father told me that was what Jesus did during those forty days and nights of fasting. That wasn't a single effort event, but He had built up to that fast over many years of small increments and steps. However, Jesus gave up His own will and authority those days in the wilderness and traded it for Father's will.
 
 Holy Spirit reminded me of the verse:
 
